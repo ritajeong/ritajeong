@@ -1,1 +1,1 @@
-![ddung](https://user-images.githubusercontent.com/48556400/127694105-d1183cd7-4964-470d-8e5b-da5a064bc8e4.gif)
+![daeng](https://user-images.githubusercontent.com/48556400/127694379-811e236c-b9d5-46d6-b9da-3dc40e283ba9.gif)
